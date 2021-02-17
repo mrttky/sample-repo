@@ -1,2 +1,2 @@
 # sample-repo
-�X�V
+更新しました
